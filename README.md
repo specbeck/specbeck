@@ -9,3 +9,5 @@
 - 😄 Pronouns: He/Him
 - 😉 I like attending cool events and meeting new people!
 - ⚡ _For, living is the only way of life, nothing could ever come close_
+
+[![An image of @specbeck07's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/specbeck07)](https://holopin.io/@specbeck07)
